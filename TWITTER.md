@@ -22,4 +22,4 @@ https://twitter.com/OfficialGTVID
 
 https://twitter.com/langitRTV
 
-https://twitter.com/ANTVOfficial_
+https://twitter.com/antvofficial_
